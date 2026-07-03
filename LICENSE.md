@@ -1,4 +1,4 @@
-#  
+#  Experience murderers vs sheriffs 2 like never before with no-ban Script for murderers vs sheriffs 2, the #1 Script. Includes esp and fly for
 
 
 
